@@ -1,0 +1,2 @@
+# Teknologie
+kool kidz
